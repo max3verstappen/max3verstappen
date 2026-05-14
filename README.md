@@ -9,7 +9,7 @@
 <img width="168" height="244" alt="pony-town-ʟᴇᴀᴅᴇʀ ᴏғ ᴛʜᴇ ᴀᴜᴛᴏʙᴏᴛs ✦ ʀᴏᴛʙ-stand-padded-4x (1)" src="https://github.com/user-attachments/assets/90f414ad-54de-4ce4-9c2d-a750b415f5db" />
 
 
-  MY SKIN IM USUALLY IN AT DOCKS [ TRANSFORMERS : RISE OF THE BEASTS OPTIMUS ] ^
+  MY SKIN IM USUALLY IN AT DOCKS [ TRANSFORMERS : THE LAST KNIGHT OPTIMUS IN MY VERSION ] ^
 
 <img width="208" height="220" alt="pony-town-ᴅʀᴀɢ ᴘᴀᴛʜ - ᴛØᴘ ✦ ᴛʟᴋ-stand-padded-4x" src="https://github.com/user-attachments/assets/869417eb-ca89-4075-8b5c-76e18292a231" />
 
