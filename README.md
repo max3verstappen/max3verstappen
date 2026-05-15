@@ -1,5 +1,4 @@
-<img width="1036" height="581" alt="Optimus Prime" src="https://github.com/user-attachments/assets/60cd2078-27d6-4810-afe7-dbc548dad494" />
-
+<img width="1036" height="581" alt="Optimus Prime" src="https://github.com/user-attachments/assets/1aecae84-c445-4846-b5e1-b4b9318a85b0" />
   
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=Autobots.&style=for-the-badge)
 
