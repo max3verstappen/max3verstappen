@@ -4,4 +4,4 @@
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=Autobots.&style=for-the-badge)
 
 
-[PRONOUNS.CC](https://pronouns.cc/@thelastknightt) -------------------------- [GUNS.LOL](https://guns.lol/optimusprimee) ----------- [PRNS.PAGE](https://en.pronouns.page/@optimusprimee)
+[PRONOUNS.CC](https://pronouns.cc/@thelastknightt) -------------------------- [GUNS.LOL](https://guns.lol/optimusprimee) ----------- [PRNS.PAGE](https://en.pronouns.page/@FC43)
