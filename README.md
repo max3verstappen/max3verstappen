@@ -4,7 +4,7 @@
 <img width="736" height="380" alt="download (27)" src="https://github.com/user-attachments/assets/6983ae31-3319-4bd4-939e-e9a8cd492c26" />
 
 
-i get rehyperfixated on some of my top drivers so i change this github alot, im not a larper i just get fixated on drivers way too easy
+OSDD SYS, BOTH GITHUB ACCOUNTS BELONG TO TWO OF OUR INTROJECTS
 
 
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=F1-Drivers&style=for-the-badge)
