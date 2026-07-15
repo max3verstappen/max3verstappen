@@ -22,9 +22,7 @@ i use a screenreader, i cannot read fonts either. don't type in symbols or fonts
 
 ^ CL / MV Themed
 
- &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp; &ensp;&ensp;[ATA](https://billiondollarman.atabook.org)  &ensp;&ensp; &ensp;&ensp; [PRNS.PAGE](https://en.pronouns.page/@billiondollarman)
 
- ^ Both CL themed i believe
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&cover_image=true&theme=natemoo-re&show_offline=true&background_color=6b0000&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&redirect=true)
 
